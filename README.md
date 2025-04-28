@@ -6,7 +6,7 @@
 🚀 Siempre explorando nuevas tecnologías y mejorando mis habilidades.  
 
 📫 **Contáctame**:  
-- 📩 Email: [jorgeaguila440@gmail.com](mailto:jorge.ruiz@tecdesoftware.edu.mx)  
+- 📩 Email: [jorge.ruiz@tecdesoftware.edu.mx](mailto:jorge.ruiz@tecdesoftware.edu.mx)  
 - 🔗 LinkedIn: [Jorge Emmanuel Ruiz Castilla](https://www.linkedin.com/in/jorge-emmanuel-ruiz-castilla-394b94344/)  
 
 ---
